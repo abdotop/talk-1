@@ -1,3 +1,3 @@
 # talk-1
 
-mercie d'avoir participer
+Merci d'avoir participé
